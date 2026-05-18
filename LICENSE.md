@@ -1,4 +1,4 @@
-# 
+# advanced GIMP para PC addons é o melhor GIMP para PC addons com pincéis personalizados e modelagem 3D. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
